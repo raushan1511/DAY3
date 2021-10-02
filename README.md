@@ -31,5 +31,5 @@ I"m raushan kumar I'm from MSIT IT 1st year
  - Hindi
  - English
 
-## here is my link of linked.in
+## here is my link of linkedin
 (www.linkedin.com/in/raushan-kumar-314583222)
