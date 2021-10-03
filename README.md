@@ -31,5 +31,7 @@ I"m raushan kumar I'm from MSIT IT 1st year
  - Hindi
  - English
 
-## here is my link of linkedin
-(www.linkedin.com/in/raushan-kumar-314583222)
+### linkedin link (www.linkedin.com/in/raushan-kumar-314583222)
+### Twitter link (https://twitter.com/Raushan70667778)
+### Instagram (https://twitter.com/Raushan70667778)
+### Facebook (https://www.facebook.com/profile.php?id=100016514490422)
