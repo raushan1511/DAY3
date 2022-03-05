@@ -33,5 +33,5 @@ I"m raushan kumar I'm from MSIT IT 1st year
 
 ### linkedin link (www.linkedin.com/in/raushan-kumar-314583222)
 ### Twitter link (https://twitter.com/Raushan70667778)
-### Instagram (https://twitter.com/Raushan70667778)
+### Instagram (https://www.instagram.com/mr.raushan1511/)
 ### Facebook (https://www.facebook.com/profile.php?id=100016514490422)
